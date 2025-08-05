@@ -2,8 +2,9 @@
 
            ด้วยความเคารพจากใจจริง,
         อาจารย์ป๊อด (podmails_th) 🇹🇭
+        https://orcid.org/0009-0004-9572-7428
 
-signatureImage
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTjPLZsUsgvoVyTaGoY1ERmga21Gx3FBvhFpg&s
 _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ 
 _ _ _ _ _ _ _
  _ _ _ _
